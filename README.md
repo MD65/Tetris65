@@ -7,3 +7,6 @@ Je tiens à vous informer que j'étais dans un groupe de 3 personnes. C'est ce v
 Il s'agit de Paul Zeino et Mael-Jose TCHUEMBOU-TASSIN. Je vous donne leurs noms pour une attestation de leur part de l'acte qu'ils ont eu à poser à mon égard. 
 
 Creer un ma réelle motivation.
+
+
+Mon nom est MADJINOU-DIVASSA Marissa-Frederique
